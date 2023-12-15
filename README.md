@@ -17,3 +17,12 @@
     * I will listen to anything
     * Vocaloid, FNAF music, phonk, c-pop, rock, etc.
     * **Do Not** bother me when I listen to music in the morning **especially** on the bus
+    * I prefer headphones over earbuds
+* I love creating different universes inside my head
+    * Some of them could be _games_, some could be _Anime TV shows_, and some of them could be _books and movies_
+    * My favorite universe is my **7th Universe** where everyone has powers and the main character is going step-by-step to achieve their goal on becoming a hero.
+    * My other favorite is my **1st Universe** where the main character travels to another world.
+* I am a perfectionist
+    * According to me, I want everything to be _organized_
+    * I never want to be late to anything.
+    * For some reason, everything has to be perfect
