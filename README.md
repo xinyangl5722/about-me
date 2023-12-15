@@ -26,3 +26,6 @@
     * According to me, I want everything to be _organized_
     * I never want to be late to anything.
     * For some reason, everything has to be perfect
+
+#### Additional Information
+(Click here to see my portfolio on my software projects!)[https://xinyangl5722.github.io/]
